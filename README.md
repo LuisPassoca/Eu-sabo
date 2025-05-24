@@ -1,2 +1,2 @@
-# Nuthin'
-Random stuffs I code as pastime
+# Melhores Ideias
+Apenas os projetos mais inúteis serão permitidos aqui 🔥
